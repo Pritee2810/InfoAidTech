@@ -1,1 +1,1 @@
-InfoAidTech Internship
+InfoAidTech
